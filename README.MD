@@ -2,4 +2,4 @@ hoy 14/11/24 me interesaria aprender mas sobre git estoy en una conferencia y cr
 hola
 una de mis series favoritas es puka
 mi pelicula favorita es silent voice
-holaaaaaa
+al dia de hoy sigo enamorado de esa personita espero verla este sabado 
